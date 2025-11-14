@@ -1,1 +1,1 @@
-# Rozlosov-n-turnaje-ve-stoln-m-tenisu
+# Rozlosovani-turnaje-ve-stolnim-tenisu
